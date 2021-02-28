@@ -1,1 +1,1 @@
-# High-Peak-COding-Challenge
+# High-Peak-Coding-Challenge
